@@ -1,1 +1,1 @@
-Посилання на веб середовище: https://replit.com/@DienisS1/KhakiPromotedWatchdog#index.html
+https://anarxistx.github.io/Ukrainian-cuisine/
